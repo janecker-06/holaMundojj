@@ -1,1 +1,1 @@
-herramientas digitales janecker oscarelis leon romero
+janecker oscarelis leon romero
